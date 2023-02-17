@@ -1,4 +1,4 @@
-Space Chaos (By: Aashrit Luthra)
+Space Chaos (By: Aashrit Luthra and Romaljeet Bal)
 
 Summary
 
